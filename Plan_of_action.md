@@ -24,6 +24,6 @@ Study methods:
 Study buddy
 - 1st option - same level physics partner
 - 2nd option - the amazing me
-  - 1: accountabillity buddy - keep Nadq accountable
+  - 1: accountabillity buddy - keep Nadya accountable
    - 
   - 2: understand what she studies
